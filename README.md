@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DGhanShyam
-- 👀 I’m interested in ...lokking
+- 👀 I’m interested in ...looking
 - 🌱 I’m currently learning ...to see
 - 💞️ I’m looking to collaborate on ...that design
 - 📫 How to reach me ...wave me
